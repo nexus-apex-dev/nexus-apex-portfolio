@@ -1,4 +1,4 @@
-# Hi, I'm Naila Ameer 👋
+# Hi, I'm Nexus Apex Architect 👋
 
 ### Full Stack Developer | UI/UX Designer | Karachi, Pakistan
 
